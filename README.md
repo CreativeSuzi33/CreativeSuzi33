@@ -7,8 +7,8 @@ https://kreativnatvorba.org ;
 https://gravatar.com/creativesuzi33 ;
 - 💞️ I’m looking to collaborate on some website with WordPress (blog, e-shop). I am looking for a second job (part-time work in the afternoon).
 - 📫 How to reach me ... 
-- by email: creativesuzi33@gmail.com
-- by LinkedIn: /in/zuzana-daskova-2a017a1a7
+- by email: job@webnamme.com
+- by LinkedIn: /company/creativesuzi33
 - by Facebook: @kreativneprodukty
 - by Telegram: t.me/missioplus
 
