@@ -10,9 +10,9 @@ https://buymeacoffee.com/creativesuzi33 ;
 - 📫 email: webapps@techie.com
   
 - by LinkedIn: /company/creativesuzi33
-- by Facebook: @digitalneprodukty
+- by Facebook: @kreativneprodukty
 - by Telegram: t.me/digitalneprodukty
 
-I am looking for a job. 
+- I am looking for a job. 
 
 Thank you.
