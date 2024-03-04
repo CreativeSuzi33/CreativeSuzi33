@@ -11,7 +11,7 @@ https://buymeacoffee.com/creativesuzi33 ;
   
 - by LinkedIn: /company/creativesuzi33
 - by Facebook: @digitalneprodukty
-- by Telegram: t.me/missioplus
+- by Telegram: t.me/digitalneprodukty
 
 I am looking for a job. 
 
