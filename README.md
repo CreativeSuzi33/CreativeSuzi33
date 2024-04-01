@@ -9,10 +9,10 @@
 
 - 📫 email: webapps@techie.com
   
-- by LinkedIn: /company/creativesuzi33
+- by LinkedIn: /in/creativesuzi33
 - by Facebook: @kreativneprodukty
 - by Telegram: t.me/digitalneprodukty
 
-- I am looking for a job. 
+- I am looking for a (part-time) job/paid project. 
 
 Thank you.
