@@ -6,6 +6,6 @@
 
 - 📫 email: suziann33@protonmail.com
 
-- I am looking for a job/paid project. 
+- I am looking for a job. 
 
 Thank you.
